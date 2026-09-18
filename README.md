@@ -1,4 +1,4 @@
-# fastlink 扬帆云 最新版本 09月 26年
+# fastlink 扬帆云 白月光 WEB3 VPN 最新版本 09月 26年
 
 白月光 地址
 [白月光](https://www.sibker.com/register?invite_code=CLAXttJG)
